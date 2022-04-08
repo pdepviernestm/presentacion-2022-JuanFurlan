@@ -8,3 +8,6 @@ El trabajo ademas de ser en un entorno relajado me permite estudiar y acomodar m
 * Jugar al futbol
 * Salir/juntarme con amigos
 * Jugar videojuegos
+
+<img src="https://user-images.githubusercontent.com/82040165/162345155-1a99f7b2-5ea9-4c98-bfe4-d1b7a6d25768.JPG">
+
